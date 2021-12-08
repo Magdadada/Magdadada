@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Magdadada
 - 👀 I’m interested in development 
 - 🌱 Plant addict 
-- :cat: 2 cats 
+- :cat: cat mom
 - 🌍 Travels : Mexico, Canada, Emirates, Espana, Italia, USA
 - 💞️ I’m looking to collaborate on this universe
 
